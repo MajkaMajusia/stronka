@@ -1,3 +1,6 @@
-Copyright to mlpa
+Tia...
+Nie klikaj w link nad tekstem, bo prowadzi do mojej strony którą sama rozjebałam.
 
-Wszelkie fork'i itd. są zakazane
+Linki:
+Artist: https://guns.lol/pablosiu
+Myself: https://guns.lol/majkamajusia
